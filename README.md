@@ -1,2 +1,0 @@
-# alxico
-PAGINAS WEB
